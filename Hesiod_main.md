@@ -182,7 +182,7 @@ Theogonie: Die Kinder der Nacht; Die Kinder des Meeres; Die Kinder des Ringstrom
 
 **Saturn verspeist seine Kinder (Goya, 1820-1823; Prado, Madrid)**
 
-![alt text](392px-Francisco_de_Goya,_Saturno_devorando_a_su_hijo_(1819-1823).jpeg)
+![alt text](392px-Francisco_de_Goya,_Saturno_devorando_a_su_hijo.jpeg)
 
 [Bildquelle](https://en.wikipedia.org/wiki/Saturn_Devouring_His_Son)
 
