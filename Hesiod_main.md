@@ -176,9 +176,59 @@ Quelle: Kirsten Schindler: Klausur, Protokoll, Essay. Kleine Texte optimal verfa
 
 Theogonie: Die Musen; Chaos, Gaia und die ersten Götter (VV. 1-210)
 
+
+### Hilfsmittel für die Suche nach antiken Quellen
+
+[Perseus Digital Library](http://www.perseus.tufts.edu/hopper/)
+
+[Übersicht griechisches Alphabet](https://de.wikipedia.org/wiki/Griechisches_Alphabet)
+
+
+**Venus von Milo (2. Jhr. v. Chr.)**
+
+![alt text](Vénus_de_Milo.jpg)
+
+[Bildquelle](https://de.wikipedia.org/wiki/Venus_von_Milo)
+
+>[...]Da entwuchs ihm  
+alsbald die Jungfrau. Zunächst zur heiligen Insel Kythera  
+wandte sie sich und kam dann zum meerumflossenen Kypros.  
+Hier, wo der Flut entstiegen die ehrfurchtgebietende, schöne  
+Himmlische, bettete Gras ihren leichten Tritt. Aphrodite,  
+schaumentsprossene Göttin, bekränzt mit den Blüten Kytheras,  
+heißt sie bei Göttern und Menschen, sie, die aus Aphros, dem Schaume,  
+wuchs. Kythereia jedoch, weil der Insel Kythera sie nahte,  
+ferner Kyprogenea, der Brandung bei Kypros entstiegen,  
+Göttin der Zeugung sodann, dem Glied der Zeugung erstanden.  
+Reiz und Liebesbegehren, Eros und Himeros, folgten,  
+als sie neugeboren zur Schar der Götter emporstieg.  
+
+(VV. 191-202)
+
 ## 3. Sitzung 16.05.2024
 
 Theogonie: Die Kinder der Nacht; Die Kinder des Meeres; Die Kinder des Ringstroms; Andere Titanen; Hekate (VV. 211-452)
+
+
+**Gruppenarbeit**
+
+Diskutiert in Kleingruppen die Euch zugewiesenen Abschnitte. Nähert Euch dabei folgenden Fragen an:
+
+1. Welche Arten von Gottheiten entstehen und wie werden sie voneinander abgegrenzt?
+2. Welche Attribute tragen sie?
+3. Auf welche menschlichen Eigenschaften und philosophischen Probleme verweisen die einzelnen Gottheiten?
+
+
+* Gruppe 1: VV. 211-232 (Kinder der Nacht)
+* Gruppe 2: VV. 233-264 (Kinder des Pontos)
+* Gruppe 3: VV. 265-336 (Enkel des Pontos)
+* Gruppe 4: VV. 337-370 (Kinder der Thetys)
+* Gruppe 5: VV. 370-408 (Andere Titanen)
+* Gruppe 6: VV. 409-452 (Hekate)  
+
+
+## 4. Sitzung 23.05.2024
+
 
 **Saturn verspeist seine Kinder (Goya, 1820-1823; Prado, Madrid)**
 
