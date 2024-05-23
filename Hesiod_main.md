@@ -184,6 +184,8 @@ Theogonie: Die Musen; Chaos, Gaia und die ersten Götter (VV. 1-210)
 [Übersicht griechisches Alphabet](https://de.wikipedia.org/wiki/Griechisches_Alphabet)
 
 
+### Aphrodite
+
 **Venus von Milo (2. Jhr. v. Chr.)**
 
 ![alt text](Vénus_de_Milo.jpg)
@@ -191,17 +193,17 @@ Theogonie: Die Musen; Chaos, Gaia und die ersten Götter (VV. 1-210)
 [Bildquelle](https://de.wikipedia.org/wiki/Venus_von_Milo)
 
 >[...]Da entwuchs ihm  
-alsbald die Jungfrau. Zunächst zur heiligen Insel Kythera  
-wandte sie sich und kam dann zum meerumflossenen Kypros.  
-Hier, wo der Flut entstiegen die ehrfurchtgebietende, schöne  
-Himmlische, bettete Gras ihren leichten Tritt. Aphrodite,  
-schaumentsprossene Göttin, bekränzt mit den Blüten Kytheras,  
-heißt sie bei Göttern und Menschen, sie, die aus Aphros, dem Schaume,  
-wuchs. Kythereia jedoch, weil der Insel Kythera sie nahte,  
-ferner Kyprogenea, der Brandung bei Kypros entstiegen,  
-Göttin der Zeugung sodann, dem Glied der Zeugung erstanden.  
-Reiz und Liebesbegehren, Eros und Himeros, folgten,  
-als sie neugeboren zur Schar der Götter emporstieg.  
+>alsbald die Jungfrau. Zunächst zur heiligen Insel Kythera  
+>wandte sie sich und kam dann zum meerumflossenen Kypros.  
+>Hier, wo der Flut entstiegen die ehrfurchtgebietende, schöne  
+>Himmlische, bettete Gras ihren leichten Tritt. Aphrodite,  
+>schaumentsprossene Göttin, bekränzt mit den Blüten Kytheras,  
+>heißt sie bei Göttern und Menschen, sie, die aus Aphros, dem Schaume,  
+>wuchs. Kythereia jedoch, weil der Insel Kythera sie nahte,  
+>ferner Kyprogenea, der Brandung bei Kypros entstiegen,  
+>Göttin der Zeugung sodann, dem Glied der Zeugung erstanden.  
+>Reiz und Liebesbegehren, Eros und Himeros, folgten,  
+>als sie neugeboren zur Schar der Götter emporstieg.  
 
 (VV. 191-202)
 
