@@ -649,3 +649,245 @@ Der Krieg zwischen den Titanen und den olympischen Göttern dauert insgesamt zeh
 Der Tartaros ist ein modriger, schrecklicher Abgrund, der von einem Höllenhund bewacht wird. Dieser Ort ist so weit weg von der Erde, dass man 9 Tage braucht, um ihn zu erreichen. Es ist ein Ort des Grauens, den selbst die Götter fürchten. Wer diesen Ort betritt, kann auch nach einem Jahr nicht den Boden oder Grund erreichen, sondern wird von einem schrecklichen Sturm umhergewirbelt. Während Hades der Herrscher der gesamten Unterwelt ist, wird Tartaros als ein besonderer Bereich betrachtet, in dem die gefallenen Titanen und andere schwer bestrafte Seelen von griechischen Göttern oder Mächten gehalten werden. Gaia hat diesen schrecklichen Ort geschaffen, der als der Ort gilt, an dem man sich am wenigsten aufhalten möchte.[^7] Es wurde dabei in der Sitzung ein Vergleich zu Dantes Inferno hergestellt, in dem die Hölle in verschiedene Kreise eingeteilt wird. Tartaros ist dabei vergleichbar mit dem äußersten Höllenkreis, der als sehr grausam beschrieben wird.
 
 [^7]: Vgl. ebd., S.59-61, VV.722-745.
+
+
+## Abschlusssitzung am 11.07.2024
+
+
+### Kleiner Exkurs: Sappho 
+
+### Sappho Fragment 31
+
+**Griechisch**
+
+φάινεταί μοι κῆνος ἴσος θέοισιν
+
+ἔμμεν ὤνερ, ὄττις ἐναντίος τοι
+
+ἰσδάνει καὶ πλάσιον ἆδυ φωνεί-
+
+σας ὐπακούει
+
+
+
+καὶ γελαίσας ἰμερόεν τό μ᾽ ἦ μάν
+
+καρδίαν ἐν στήθεσιν ἐπτόησεν·
+
+ὠς γὰρ εἰσίδω βροχέως σε, φώνας
+
+οὐδὲν ἔτ᾽ ἴκει·
+
+
+
+ἀλλὰ κάμ μὲν γλῶσσα ἔαγε, λέπτον
+
+δ᾽ αὔτικα χρῷ πῦρ ὐπαδεδρόμηκεν,
+
+ὀππάτεσσι δ᾽ οὐδὲν ὄρημ᾽,ἐπιρρόμ-
+
+βεισι δ᾽ ἄκουαι.
+
+
+
+καδ δέ μ᾽ ἴδρως κακχέεται, τρόμος δὲ
+
+παῖσαν ἄγρει, χλωροτέρα δὲ ποίας
+
+ἔμμι, τεθνάκην δ᾽ ὀλίγω ᾽πιδεύης
+
+φαίνομαι […].
+
+
+ἀλλὰ πᾶν τόλματον … 
+
+**Englisch**
+
+That man seems to me to be equal to the gods
+
+who is sitting opposite you
+
+and hears you nearby
+
+speaking sweetly
+
+
+and laughing delightfully, which indeed
+
+makes my heart flutter in my breast;
+
+for when I look at you even for a short time,
+
+it is no longer possible for me to speak
+
+
+but it is as if my tongue is broken
+
+and immediately a subtle fire has run over my skin,
+
+I cannot see anything with my eyes,
+
+and my ears are buzzing
+
+
+a cold sweat comes over me, trembling
+
+seizes me all over, I am paler
+
+than grass, and I seem nearly
+
+to have died.
+
+
+but everything must be dared/endured, since (?even a poor man) ..." 
+
+
+### Sappho Fragment 1 (Ode an Aphrodite)
+
+**Griechisch**
+
+
+ποικιλόθρον’ ἀθανάτ’ Ἀφρόδιτα,
+
+παῖ Δίος δολόπλοκε, λίσσομαί σε,
+
+μή μ’ ἄσαισι μηδ’ ὀνίαισι δάμνα,
+
+πότνια, θῦμον,
+
+
+ἀλλὰ τυίδ’ ἔλθ’, αἴ ποτα κἀτέρωτα
+
+τὰς ἔμας αὔδας ἀίοισα πήλοι
+
+ἔκλυες, πάτρος δὲ δόμον λίποισα
+
+χρύσιον ἦλθες
+
+
+ἄρμ’ ὐπασδεύξαισα· κάλοι δέ σ’ ἆγον
+
+ὤκεες στροῦθοι περὶ γᾶς μελαίνας
+
+πύκνα δίννεντες πτέρ’ ἀπ’ ὠράνωἴθε-
+
+ρος διὰ μέσσω·
+
+
+αἶψα δ’ ἐξίκοντο· σὺ δ’, ὦ μάκαιρα,
+
+μειδιαίσαισ’ ἀθανάτῳ προσώπῳ
+
+ἤρε’ ὄττι δηὖτε πέπονθα κὤττι
+
+δηὖτε κάλημμι
+
+
+κὤττι μοι μάλιστα θέλω γένεσθαι
+
+μαινόλᾳ θύμῳ· τίνα δηὖτε πείθω
+
+ἄψ σ’ ἄγην ἐς ϝὰν φιλότατα; τίς σ’, ὦ
+
+Ψάπφ’, ἀδικήει;
+
+
+καὶ γὰρ αἰ φεύγει, ταχέως διώξει,
+
+αἰ δὲ δῶρα μὴ δέκετ’, ἀλλὰ δώσει,
+
+αἰ δὲ μὴ φίλει, ταχέως φιλήσει
+
+κωὐκ ἐθέλοισα.
+
+
+ἔλθε μοι καὶ νῦν, χαλέπαν δὲ λῦσον
+
+ἐκ μερίμναν, ὄσσα δέ μοι τέλεσσαι
+
+θῦμος ἰμέρρει, τέλεσον, σὺ δ’ αὔτα
+
+σύμμαχος ἔσσο.
+
+
+**Englisch**
+
+Richly-enthroned immortal Aphrodite, daughter of Zeus,
+
+weaver of wiles, I pray to you: Break not my spirit, Lady,
+
+with heartache or anguish;
+
+
+But hither come, if ever in the past you heard my cry from
+
+afar, and marked it, and came, leaving your father's 
+
+house,
+
+
+Your golden chariot yoked: sparrows beautiful and swift
+
+conveyed you, with rapid wings a-flutter, above the dark
+
+earth from heaven through the mid-air;
+
+
+And soon they were come, and you, Fortunate, with a smile
+
+on your immortal face, asked what ails me now, and why
+
+I am calling now,
+
+
+And what in my heart's madness I most desire to have:
+
+'Whom now must I persuade to join your friendship's
+
+ranks? Who wrongs you, Sappho?
+
+
+For if she flees, she shall soon persue; and if she receives
+
+not gifts, yet shall she give; and if she loves not, she shall 
+
+soon love even against her will.'
+
+
+Come to me now also, and deliver me from cruel anxieties;
+
+fulfil all that my heart desires to fulfil, and be your-
+
+self my comrade-in-arms
+
+
+
+### Aufgabenstellung Take-Home-Klausur BA 4
+
+**Hinweise**
+
+
+1) Bitte beachten Sie die formalen Vorgaben für schriftliche Arbeiten im Fach Philosophie. Lassen Sie Ihren Text vor der Abgabe Korrektur lesen.
+
+2) Bitte benutzen Sie für die Titelseite die entsprechende Vorlage (als Download auf der Instituts-Website).
+
+3) Sämtliche verwendete Quellen sind eindeutig und einheitlich bibliographisch nachzuweisen. Die Beantwortung jeder Frage muss einen Bezug zur Primärliteratur haben. Vermeiden Sie indirekte Zitate und zitieren Sie wenn möglich direkt aus dem Text.
+
+4) Gehen Sie in die Bibliothek und recherchieren Sie.
+
+5) Die Klausur ist selbständig zu verfassen. Die entsprechende eidesstattliche Erklärung (Vorlage ebenfalls auf der Instituts-Website) ist zu verwenden.
+
+6) Abgabetermin ist der 30.09.2024. Die Abgabe erfolgt ausgedruckt an der Hauptpforte oder im Abgabekasten im Erdgeschoss der LS 4. Keine Abgabe per Email! 
+
+**Bitte wählen Sie aus den folgenden Fragen zwei aus und beantworten diese auf insgesamt 5-6 Seiten (zzgl. Deckblatt und Literaturverzeichnis)**
+
+
+
+1. Rekonstruieren Sie den Arbeitsbegriff in *Werke und Tage*. (2-3 Seiten)
+2. Diskutieren Sie das Verhältnis von Kindstötung und Vatermord in der *Theogonie*. (2-3 Seiten)
+3. Vergleichen Sie Variationen des Prometheus-Mythos in der *Theogonie* und in *Werke und Tage* (2-3 Seiten)
+4. Auf welche menschlichen Eigenschaften und philosophischen Probleme verweisen die einzelnen Gottheiten in der Theogonie? (2-3 Seiten)
+5. Nehmen Sie argumentativ und textnah Stellung zum Problem der Misogynie bei Hesiod (2-3 Seiten)
+  
+
+**Viel Erfolg und fröhliche Wissenschaft!**
